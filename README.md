@@ -4,7 +4,7 @@ Perkenalkan nama saya **Zain Ammar Falih**.<br>
 
 Saya seorang **Mahasiswa Semester 7 Jurusan Sistem Informasi** di Telkom Univesity.<br>
 
-Saya berkerja sebagai Manager Youtube dan Ambassador di Marketing Crew Telkom University Kampus Jakarta.<br>
+Ex- UI/UX Researcher at Telkomsel | UI/UX, System Analyst, and Project Management Enthu | Telkom University<br>
 
 
 Jika kamu tertarik untuk berkenalan denganku, silakan ikuti akun [Linkedin](https://www.linkedin.com/in/zainammarfalih/)ku ya!.
